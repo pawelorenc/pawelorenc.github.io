@@ -1,3 +1,3 @@
 # pawelorenc.github.io
 
-to dziala czy n
+# to dziala czy n
