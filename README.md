@@ -1,2 +1,7 @@
-# pawelorenc.github.io
-ciekawe czy dziala
+# stronkahehe.github.io
+
+# czesc
+
+### Super strona, strona super 
+
+Tutaj zdjecie 
