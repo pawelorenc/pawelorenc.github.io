@@ -1,6 +1,4 @@
-# stronkahehe.github.io
-
-# czesc
+# czesc :)
 
 ### Super strona, strona super 
 Projekty na ktorymi pracuje - strona.
